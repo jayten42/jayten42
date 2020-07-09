@@ -1,3 +1,4 @@
+# Jaeyeol Jeon, @42 Seoul 
 ### Hi there 👋
 
 <!--
